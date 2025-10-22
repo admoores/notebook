@@ -1,0 +1,1 @@
+- The reason she sends specifc, disparate things is that she is so fractured into all of these aspects. The dreams they had before are a few bits of memory that the one aspect Yos attracted still had
