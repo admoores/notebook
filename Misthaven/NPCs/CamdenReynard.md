@@ -5,3 +5,5 @@ A lithe, freckle-skinned half-elven man of about 30 years, wears a brown vest ov
 
 He speaks like Alucard from Castlevania but with an American accent.
 ```
+
+Bartender at the Flat Top Tavern
