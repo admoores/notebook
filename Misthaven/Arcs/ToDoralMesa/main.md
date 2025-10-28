@@ -38,7 +38,8 @@
 ## In-Session Notes
 
 - Flat-Top Tavern [Camden Reynard](../../NPCs/CamdenReynard.md)
+- High-level student [Selenia Morrow](../../NPCs/SeleniaMorrow.md)
 
 - Mordan - Investigation at the Hall of Records - 27
 - Thokk - Scarro plot - How far back? - Anything special about the headstones? "Father to..." kinda stuff? - Investigation - 26 - Mosoleum dedicated to the family as well. Is there a temple or other structure? No it's mostly just a maintenance building. Pri
-- Yos - Investigation 11 - Trying to sniff out anything else to check out, other locations, etc. 
+- Yos - Investigation 11 - Trying to sniff out anything else to check out, other locations, etc.

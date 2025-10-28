@@ -1,0 +1,7 @@
+## Advanced Dynamical Systems
+ - During the extermination of the Kindred, ADS figured out a way to "defang" (pun intended, and not literally) Kindred and turn them into a vital resource. These "distilled" kindred form the backbone of ADS's operations today. While they produce a lot of heavy industrial, weapons, etc. they are also invovled in cutting-edge medicine, cybernetics, prosthetics, etc. For the wealthiest, perfect health and unparalleled longevity are ADS's latest offerings. 
+ - Gaia Merced, the current heiress to the ADS corporate empire, is (known to very few) the first in a brand new development in Kindred-based treatments. She is immortal, will never get sick, and heals perfectly from most injuries.
+   - In her case, she's had so much Distilled and actual Kindred vitae over the years that she has versions of many disciplines.
+ - Gaia's "father", Hiram, was turned into a prototype Distilled during the war, forming part of the basis for the Distilled project. He's immortal, but he needs to feed, is sickly, and otherwise deals with many of the complications of being a Kindred.
+   - "The public was made aware of a threat. We told them it was handled. What could be easier to swallow?"
+ - There is, as yet, no substitute for the "real thing". Though they've reduced the need to very small proportions in comparison to their synthesized compounds they still can't achieve permanent results on Distilled vitae alone. Brisk and Crimewick were all intentionally brought aboard. Dowd, impossibly, was hired and given passage by accident.

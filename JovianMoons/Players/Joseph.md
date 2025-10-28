@@ -1,6 +1,7 @@
 |||
 |-|-|
 | Name | Weston Brisk [Dr. Leo Pistro] |
+| Sire | Ouroboros |
 | Clan | Ministry |
 | Status | Passenger [Employed] |
 | Apparent Age | 30 |
