@@ -21,3 +21,9 @@ Straight-laced, clean-cut, swell fella
 Vallium. 
 
 Regular at the pharmacy.
+
+### Apartment
+1950s motel, a little swanky decor. 
+
+- Elwood wrote something he doesn't quite know
+- Discrepancy in the books from one particular reporter in another accounting department.

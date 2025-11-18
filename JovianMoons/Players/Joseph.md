@@ -26,6 +26,18 @@ Ministry pharmacist, on the ship to convert cultists both in transit and at the 
 
 - Average build, average height, bald, groomed longer beard. Serpentine, yellow eyes.
 
+- Split dots, one herdmate in attendance. 
+#### Elysium
+- Sends herd out to move illicit drugs, invite more people into the church, but also have them constantly out and about on the ship.
+- Has been poking/prodding to find whatever it is that each person is looking for.
+
 #### For Me
 ---
 - How do you think we stocked enough medication for you and others like you to keep siphoning drugs?
+
+
+
+
+- 6 mortals, 3 on "step 2".
+
+-- Heading to the univ complex later in the evening with two of his retainer (to return Gaia's flex having people).

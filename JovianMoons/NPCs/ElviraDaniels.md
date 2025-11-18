@@ -1,0 +1,1 @@
+Biology/chemistry professor. Bookish, curly hair, usually wears brown courduroy trousers, a pale shirt, and some kind of pocketed vest

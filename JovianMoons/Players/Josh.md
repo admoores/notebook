@@ -15,3 +15,5 @@ Stowaway salubri - sandman - Hunted bane continues out into space, paranoid. - G
 - Boiling up need for more knowledge, even though a haven is the more pressing need.
 
 - Shrouded in dark robes, fully covering whatever other clothes. Shorn sides, slight droop over the forehead (to cover his third eye).
+
+- Trying to figure out what he can do with the slate he's stolen.

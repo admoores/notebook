@@ -16,3 +16,5 @@ Academic type, obsessed with blood magic.
 
 Occult Roll - There are experimental medical compounds. 
 
+- Trying to find: what's off-limits that he might want access to
+

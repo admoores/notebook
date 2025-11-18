@@ -8,3 +8,4 @@ She is often seen in fitted suits of bright, often metallic colors.
 
 Gaia is 63 years old but barely looks 40. She is an early version of what the Distilled project is ultimately meant to produce. Not kindred, not mortal. She subsists just fine on human food, though nurses a fierce addiction to Distilled Vitae regardless, conferring few benefits beyond what she has already achieved (and a brief high).
 
+- Merced family has a long-standing interest in "ascendant path" types of teachings/mythos's etc. 
